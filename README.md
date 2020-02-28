@@ -28,8 +28,8 @@
 
 ### YouTube Channel
 
-### https://www.youtube.com/c/HA-MRX
+### https://www.youtube.com/UCP0G7Ibqpq6z7zE13DR9Qdg
 
 ### Viddeo Tutorial
 
-### https://www.youtube.com/watch?v=a-moMHuZX_Q&t=11s
+### https://www.youtube.com/UCP0G7Ibqpq6z7zE13DR9Qdg
